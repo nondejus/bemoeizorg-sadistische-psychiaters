@@ -1,2 +1,9 @@
 # bemoeizorg-sadistische-psychiaters
+
+# vertigingskamp
+https://en.wiktionary.org/wiki/vernietigingskamp
+
+# nederland
+https://en.wikipedia.org/wiki/Netherlands
+
 2002-2021
